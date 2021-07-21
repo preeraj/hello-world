@@ -9,3 +9,4 @@ Some random facts about me.
 I am Preeti, an Earthling who is addicted to coffee and obsessed with sci fi and fantasy.
 I am passionate about healthcare and Bioinformatics.
 I am a dog person and my name means love!
+Some of my favourite shows - FRIENDS, This is Us, How I Met Your Mother, Modern Family etc
